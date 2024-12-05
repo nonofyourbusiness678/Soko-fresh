@@ -1,2 +1,3 @@
 # Soko-fresh
-first project on github
+# Get your goods here
+# Healthy and fresh
